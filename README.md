@@ -1,11 +1,11 @@
-- 👋 Hi, I’m @Magos-Technicus
+- 👋 Hi, I’m @Felipe
 - 👀 I’m interested in Anime, Games and Novels
 - 🌱 I’m currently learning to create a complete site using wordpage.org
 - 💞️ I’m looking to collaborate on any projects that fits my interests (of anime/games/novels) or if money is involved because why not???
 - 📫 How to reach me e-mail me at: felipebuenoaliski@gmail.com
 
 --------------
-- 👋 Olá, eu sou @Magos-Technicus
+- 👋 Olá, eu sou @Felipe
 - 👀 Eu me interesso por Animes, Games e Novels
 - 🌱 Atualmente estou aprendendo a criar um site completo usando o wordpage.org
 - 💞️ Estou procurando colaborar em qualquer projeto que se encaixe nos meus interesses (de animes/games/novels) ou se dinheiro estiver envolvido, por que não???
