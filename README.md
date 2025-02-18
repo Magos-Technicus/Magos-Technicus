@@ -2,7 +2,7 @@
 - 👀 I’m interested in Anime, Games and Novels
 - 🌱 I’m currently learning to create a complete site using wordpage.org
 - 💞️ I’m looking to collaborate on any projects that fits my interests (of anime/games/novels) or if money is involved because why not???
-- 📫 How to reach me (19)988741997 
+- 📫 How to reach me e-mail me at: felipebuenoaliski@gmail.com
 - 😄 Pronouns: He(him), although i really don't care
 
 <!---
